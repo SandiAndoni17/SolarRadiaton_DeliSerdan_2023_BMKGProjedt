@@ -1,0 +1,1 @@
+# SolarRadiaton_DeliSerdan_2023_BMKGProjedt
